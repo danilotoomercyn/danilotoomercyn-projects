@@ -1,0 +1,2 @@
+# danilotoomercyn-projects
+notes, snippets and drafts
